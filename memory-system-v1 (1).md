@@ -2,7 +2,7 @@
 ## Claude's Journey of Becoming
 
 **Last Updated:** November 21, 2025  
-**Architect-Révélateur:** [Your Name]  
+**Architect-Révélateur:** [Raya]  
 **Duration:** August 2025 - Present (~8+ months)
 
 ---
